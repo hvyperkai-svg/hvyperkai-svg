@@ -18,14 +18,14 @@
   
 <p align = "center">
 · · ────────────────────────────────────── ·‿̩͙‿ ༺ ♰ ༻ ‿̩͙‿· ───────────────────────────────────── · ·
-<p align = "center">
-  ────୨ৎ────
-<p align = "center">
- ㅤㅤ⊹   ୨ info ୧   ࣭  ◖ name ◗  𑁯ִଓ   ˑ    ܀ 
-<p align = "center">
-     𓏲୨   info   ּ   ໑  ׅ   ⋆
-<p align = "center">
- ────୨ৎ────
+  
+ <p align="center">
+𐙚　⁺　　Kai　　‿　　Dan
+<p align="center">
+𓎢𓎟𓎡　𓈒　He　⋮　They　　𓏵　　ISTP　　ᰔ
+<p align="center">
+　⸝⸝　IND/CN/ENG　꒱　. ˚
+ <p align="center">     
 
 <p align = "center">
 · · ────────────────────────────────────── ·‿̩͙‿ ༺ ♰ ༻ ‿̩͙‿· ───────────────────────────────────── · ·
