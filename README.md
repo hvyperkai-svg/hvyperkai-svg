@@ -14,7 +14,7 @@
 <img width="2000" height="2000" alt="Image" src=https://github.com/user-attachments/assets/2894bacf-1e5b-4d1a-92d6-c170c9f1ea7b/>
   
 <p align = "center">
-▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
+·‿̩͙‿ ༺ ♰ ༻ ‿̩͙‿·
 <p align = "center">
 ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 <p align = "center">
